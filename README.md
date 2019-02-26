@@ -1,1 +1,1 @@
-TorneoReyes
+Torneo Los ReyesReyes
